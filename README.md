@@ -1,0 +1,1 @@
+# LINE-ijihi-syumire-syon
